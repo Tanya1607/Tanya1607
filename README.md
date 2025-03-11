@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I am currently working on Python and Web development.<br><br>💬 Let's chat about exciting collaboration opportunities on innovative projects! Whether it's coding, designing, or brainstorming, count me in.<br><br>📚 Also, a fan of continuous learning! Always on the lookout for new technologies and best practices.<br><br>😄 Pronouns: He/Him
+🔭 I am currently working on Python and Web development.<br><br>💬 Let's chat about exciting collaboration opportunities on innovative projects! Whether it's coding, designing, or brainstorming, count me in.<br><br>📚 Also, a fan of continuous learning! Always on the lookout for new technologies and best practices.<br><br>😄 Pronouns: She/Her
 
 
 ## 🌐 Socials:
